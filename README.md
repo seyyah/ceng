@@ -1,0 +1,1 @@
+bölüm içi lab çalışması
